@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Shallmay14
-- 👀 I’m interested in travel, cycling and hiking.
+- 👀 I’m interested in ✈️travel, 🚴‍cycling and 🏔hiking. 🇹🇼🇨🇳🇲🇾🇯🇵🇹🇭🇫🇮🇮🇸🇳🇴🇭🇰🇻🇳🇱🇰🇬🇧🇺🇸🇨🇺🇪🇨🇵🇪🇧🇴🇨🇱
 - 🌱 I’m working on web-based program project as technical leader.
 - 💞️ I’m looking to collaborate on code training, finance, education.
 - 📫 How to reach me in shallmay14@gmail.com
